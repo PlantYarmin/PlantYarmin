@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PlantYarmin
-- 👀 I’m interested in plants, games, music
+- 👀 I’m interested in plants, games, music and learning about cryptocurrency
 - 🌱 I’m currently learning how to make my own blog
 - 💞️ Not looking to colab right now
 - 📫 How to reach me @  Yarminb@gmail.com
